@@ -1,0 +1,2 @@
+# premium-bamboo-bike-001-bamboo-bicycle-frame-build-pla
+Tired of scattered notes, forgotten measurements, and inconsistent frame geometry? The Bamboo Bicycle Frame Build Planner brings method to the madness of building a custom bamboo bike from scratch.  This Notion template eliminates guesswork by organizing every stage of your frame build—from material sourcing to final assembly. Unlike generic projec
